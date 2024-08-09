@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @JEM-kaique1d
 - 👀 I’m interested in soccer
-- 🌱 I’m currently learning unfolding
+- 🌱 I’m currently learning desenrrolar
 - 💞️ I’m looking to collaborate on at home
 - 📫 How to reach me call on zap dad
 - 😄 Pronouns: cool, funny and happy
